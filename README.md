@@ -1,0 +1,2 @@
+# AI_Class
+RIAN AHMAD_F55123088
